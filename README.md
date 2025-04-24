@@ -15,11 +15,15 @@ But with my newly learned coding skills I am going to take the opportunity to cr
 During my **freetime**, you will find me in the gym, watching sports, playing games or ***spending my time with my kids and fiancée!***
 
 Who are you?
+
 Someone that wants to evolve just like me. 
+
 Someone who is willing to grow continuily.
+
 Proper ticket based work, scrum or something similiar!
 
 Nice to have:
+
 Self education time on company Time! 
 
 
